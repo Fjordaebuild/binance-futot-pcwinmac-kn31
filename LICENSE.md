@@ -1,4 +1,4 @@
-# 
+# Ultimate binance futures bot presets for Mac OS | Premium binance futures bot presets for PC Windows. Featuring mean reversion strategy and futures trading — optimized for maximum performance.
 
 
 
